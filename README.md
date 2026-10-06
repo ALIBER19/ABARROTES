@@ -1,2 +1,0 @@
-# ABARROTES
-TAREA
